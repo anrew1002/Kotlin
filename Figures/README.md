@@ -1,0 +1,1 @@
+![](https://skrinshoter.ru/sMMweh79Zpy?a)
